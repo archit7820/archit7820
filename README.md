@@ -2,7 +2,7 @@
 
 ### Hi there 👋, my name is Archit
 #### I'm  web developer ,designer  and Cloud Engineer
-![I'm  web developer ,designer  and Cloud Engineer](https://drive.google.com/file/d/1Xc0XCMyW6WCQkigt-XB453Toz6KmmGbe/view?usp=drive_link)
+![I'm  web developer ,designer  and Cloud Engineer](https://pbs.twimg.com/profile_banners/1681724807400833047/1695401371/1080x360)
 
 Highly motivated and detail-oriented engineer with a passion for developing . I am confident in my
 ability to bring value to any team. I am constantly seeking opportunities to improve my skills and stay
